@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jaelaniuwahyu
+- 👀 I’m interested in Data Analyst or Data Scientist
+- 🌱 I’m currently learning All Above in Internet and Boothcamp
+- 💞️ I’m looking to collaborate or new opportunities relate on Data Analyst and Data Scientist
+- 📫 Reach me on Gmail: jaelaniuwahyu@gmail.com
